@@ -6,4 +6,4 @@
 
 目前是初步的雏形
 
->真tm服了，"sky could"的"l"拼错了(
+>真tm服了，"sky could"的"l"拼错了(应为"sky cloud"(((
